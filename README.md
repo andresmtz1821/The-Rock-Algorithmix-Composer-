@@ -1,1 +1,1 @@
-# The-Rock-Algorithmicx-Composer-
+# The-Rock-Algorithmic-Composer-
